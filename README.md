@@ -1,2 +1,0 @@
-# EzraJuddElaco.github.io
-Sample
